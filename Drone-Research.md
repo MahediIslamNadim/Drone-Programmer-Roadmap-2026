@@ -1,4 +1,4 @@
-#🇧🇩 Bangladesh Drone Industry Research Report 2026
+# 🇧🇩 Bangladesh Drone Industry Research Report 2026
 ## Market Analysis, Opportunities, Regulations, and Startup Strategy
 #### Independent Industry Research by NexCore Technologies
 ---
